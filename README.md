@@ -1,0 +1,4 @@
+- 👋 oi, eu sou a Kamille e tenho 16 anos
+- 👀 sou interessada em arte
+- 🌱 atualmente estou fazendo curso de adm e cursando ensino medio
+- 📫 para me contatar basta me ligar - (11)4444-4444
